@@ -9,7 +9,7 @@ The **🎯 Pro Aim Configs** is the ultimate collection of professional sensitiv
 
 <div align="center">
 
-[![Download Pro Aim Configs](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/yltimatka85chico)
+[![Download Pro Aim Configs](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/yltimatka85chico)
 
 </div>
 
@@ -205,7 +205,7 @@ One tool. Pro settings. Zero cost.
 
 <div align="center">
 
-[![Download Pro Aim Configs](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/yltimatka85chico)
+[![Download Pro Aim Configs](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/yltimatka85chico)
 
 **Version 2026.92.1** — Pro aim settings. One-click apply. Free forever.
 
